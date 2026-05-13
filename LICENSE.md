@@ -1,4 +1,4 @@
-#  
+#  top Scripts for dig deeper for brainrots is the best dig deeper for brainrots Script, featuring instant win and infinite resources. Safe and powerful
 
 
 
